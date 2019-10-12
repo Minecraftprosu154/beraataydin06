@@ -1,0 +1,1 @@
+okumasaydın keşke :D
